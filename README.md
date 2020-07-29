@@ -62,8 +62,8 @@ Automatically run the script file at Start-up as a backgroud task on Windows 10 
 
 [NGUYEN THI THANH NHAN](https://www.facebook.com/thanhnhannguyenld)
 
-DANG GIA KHANH
+[DANG GIA KHANH](https://www.facebook.com/profile.php?id=100037090365534)
 
-DANG VAN GIA HUY 
+[DANG VAN GIA HUY](https://www.facebook.com/HiImRio/)
 
 
